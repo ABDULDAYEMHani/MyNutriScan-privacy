@@ -1,0 +1,1 @@
+# MyNutriScan-privacy
